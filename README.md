@@ -1,0 +1,5 @@
+- 👋 hellooo my name is jas but i'm coding under the name 🍓 frailuie 🌧️
+- 👀 i'm interested in some day coding my own game! ✨
+- 🌱 i'm currently learning javascript and have been coding since sept '23!
+- 💞️ i'm looking to collaborate on inspiring, challenging, and fun projects (´｡• ω •｡`)
+- 📫 you can reach me here, on twt, or on discord! i look forward to upgrading my skills and meeting other likeminded people
