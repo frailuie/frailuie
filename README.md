@@ -2,4 +2,4 @@
 - 👀 i'm interested in some day coding my own game! ✨
 - 🌱 i'm currently learning javascript and have been coding since oct '23!
 - 💞️ i'm looking to collaborate on inspiring, challenging, and fun projects (´｡• ω •｡`)
-- 📫 you can reach me here, on twt, or on discord! i look forward to upgrading my skills and meeting other likeminded people
+- 📫 you can reach me on discord! i look forward to upgrading my skills and meeting other likeminded people
